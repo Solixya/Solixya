@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Solixya
+- 👀 I’m interested in video games, manga/webcomics/...
+- 🌱 I’m currently learning Web Development
+- 😄 Pronouns: She/Her
